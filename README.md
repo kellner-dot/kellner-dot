@@ -11,7 +11,7 @@ The Artful Dodger is dark drum & bass and techno from Bennington, Vermont. Start
 
 - **Tuff Old Bird** — single, released November 18, 2026 — [Bandcamp](https://theartfuldodger1.bandcamp.com/album/tuff-old-bird) — free / name your price
 - **Fugue State** — single, released November 18, 2026 — [Bandcamp](https://theartfuldodger1.bandcamp.com/album/fugue-state) — free / name your price
-- **Rising Edge** — single, out today — free / name your price
+- **Rising Edge** — single, released November 18, 2026 — [Bandcamp](https://theartfuldodger1.bandcamp.com/album/rising-edge) — free / name your price
 - **East Coast Lhack Wead** — debut album, 2009 — [Bandcamp](https://theartfuldodger1.bandcamp.com/album/east-coast-lhack-wead)
 
 ## Coming soon
